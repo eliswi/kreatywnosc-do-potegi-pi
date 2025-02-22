@@ -1,0 +1,1 @@
+Kreatywność do potęgi Pi
